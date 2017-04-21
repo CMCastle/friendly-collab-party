@@ -15,3 +15,7 @@ Try to add a to do list to the project
 
 ## Help with the project
 Clair can help!
+
+Hello this is ky266 I am trying to join the party but I seem to be too uncool 
+
+I am tryign to gate crash again.
